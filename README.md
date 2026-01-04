@@ -20,3 +20,11 @@ Roll No- 25112020
 
 ![Screenshot_20260103_214224_Chrome](https://github.com/user-attachments/assets/ce003b66-dc56-46b2-9107-7750464d24fd)
 ![Screenshot_20260103_214247_Chrome](https://github.com/user-attachments/assets/d753e38f-5b21-481a-9b76-8e4dfce4ff14)
+
+
+
+
+# Day04 04/01/2026
+
+![Screenshot_20260104_234254_Chrome](https://github.com/user-attachments/assets/ff4a0531-4246-41a3-81de-8e08f29d855c)
+
