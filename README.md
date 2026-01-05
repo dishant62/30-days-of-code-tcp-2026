@@ -6,20 +6,22 @@ Roll No- 25112020
 <br><br>
 # Day 01 01/01/2026
 <br>
-![Screenshot_20260101_201034_Chrome](https://github.com/user-attachments/assets/1e0ba8fe-994c-4930-9c19-0ebc064bcbc8)
 
+![Screenshot_20260101_201034_Chrome](https://github.com/user-attachments/assets/1e0ba8fe-994c-4930-9c19-0ebc064bcbc8)
 ![Screenshot_20260101_201103_Chrome](https://github.com/user-attachments/assets/af428ab2-d516-4f58-8075-7e73acfb7c33)
 <br><br>
 
 
 # Day02 02/01/2026
 <br>
+
 ![Screenshot_20260102_215438_Chrome](https://github.com/user-attachments/assets/a6f442d2-218f-4177-bd06-5495a4045486)
 <br><br>
 
 
 # Day03 03/01/2026
 <br>
+
 ![Screenshot_20260103_214224_Chrome](https://github.com/user-attachments/assets/ce003b66-dc56-46b2-9107-7750464d24fd)
 ![Screenshot_20260103_214247_Chrome](https://github.com/user-attachments/assets/d753e38f-5b21-481a-9b76-8e4dfce4ff14)
 <br><br>
@@ -27,12 +29,14 @@ Roll No- 25112020
 
 
 # Day04 04/01/2026
+<br>
 
 ![Screenshot_20260104_234254_Chrome](https://github.com/user-attachments/assets/ff4a0531-4246-41a3-81de-8e08f29d855c)
 <br><br>
 
 # Day05 05/01/2026
 <br>
+
 ![Screenshot_20260105_225241_Chrome](https://github.com/user-attachments/assets/9d9417aa-979d-4735-9bb1-76178f88ccd7)
 ![Screenshot_20260105_225431_Chrome](https://github.com/user-attachments/assets/5d84d3a1-4898-4874-915f-16194e795c90)
 ![Screenshot_20260105_225331_Chrome](https://github.com/user-attachments/assets/18f54c8f-1500-4e29-b2a2-c62960c398e8)
