@@ -41,3 +41,10 @@ Roll No- 25112020
 ![Screenshot_20260105_225431_Chrome](https://github.com/user-attachments/assets/5d84d3a1-4898-4874-915f-16194e795c90)
 ![Screenshot_20260105_225331_Chrome](https://github.com/user-attachments/assets/18f54c8f-1500-4e29-b2a2-c62960c398e8)
 ![Screenshot_20260105_225306_Chrome](https://github.com/user-attachments/assets/8b13a7e7-0b31-446b-9f6b-39ce90b365ea)
+<br><br><br>
+
+# Day06 06/01/2026
+<br>
+
+![Screenshot_20260106_224937_Chrome](https://github.com/user-attachments/assets/6d6027de-329d-4388-8706-88208fe67f1a)
+
