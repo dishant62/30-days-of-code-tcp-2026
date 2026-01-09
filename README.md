@@ -53,4 +53,9 @@ Roll No- 25112020
 <br>
 
 ![Screenshot_20260107_223439_Chrome](https://github.com/user-attachments/assets/1e875ad3-3ade-46c1-85ec-5f1c03981421)
+<br><br><br>
 
+# Day08 08/01/2026
+<br>
+
+![Screenshot_20260109_063705_Chrome](https://github.com/user-attachments/assets/ac51eb6b-d55a-4362-a806-76fe1244f095)
