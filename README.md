@@ -65,4 +65,10 @@ Roll No- 25112020
 <br>
 
 ![Screenshot_20260109_232046_Chrome](https://github.com/user-attachments/assets/f3a41111-c73c-4c5e-b696-e94fe28849c3)
+<br><hr>
+
+# Day10 10/01/2026
+<br>
+
+![Screenshot_20260110_232109_Chrome](https://github.com/user-attachments/assets/c6f1fcb0-6c8a-4180-a91c-6f43b3b9b7e0)
 
