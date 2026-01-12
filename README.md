@@ -65,7 +65,7 @@ Roll No- 25112020
 <br>
 
 ![Screenshot_20260109_232046_Chrome](https://github.com/user-attachments/assets/f3a41111-c73c-4c5e-b696-e94fe28849c3)
-<br><hr>
+<br><hr><br><br>
 
 # Day10 10/01/2026
 <br>
@@ -74,6 +74,15 @@ Roll No- 25112020
 <br>
 
 # Day11 11/01/2026
+<br>
 
 ![Screenshot_20260111_235623_Chrome](https://github.com/user-attachments/assets/64e12074-5bb0-4669-9c52-6ad38b21381b)
+<br><hr><br><br>
+
+# Day12 12/01/2026
+<br>
+
+![Screenshot_20260112_233057_Chrome](https://github.com/user-attachments/assets/e5be55e9-5b1b-4a97-9f32-a535b2038996)
+<b><hr><br><br>
+
 
