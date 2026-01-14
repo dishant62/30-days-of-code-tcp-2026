@@ -89,6 +89,13 @@ Roll No- 25112020
 <br>
 
 ![Screenshot_20260114_002750_Chrome](https://github.com/user-attachments/assets/42121d7e-6e27-4345-bd28-8c669cb419a3)
+<br><hr><br><br>
+
+# Day14 14/01/2026
+<br>
+
+<img width="1920" height="1017" alt="Screenshot (2)" src="https://github.com/user-attachments/assets/038aa661-dfc0-474c-8d49-71d16c0b9e98" />
+<br><hr><br><br>
 
 
 
