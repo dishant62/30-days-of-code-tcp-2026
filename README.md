@@ -97,5 +97,12 @@ Roll No- 25112020
 <img width="1920" height="1017" alt="Screenshot (2)" src="https://github.com/user-attachments/assets/038aa661-dfc0-474c-8d49-71d16c0b9e98" />
 <br><hr><br><br>
 
+# Day15 15/01/2026
+<br>
+
+<img width="1920" height="1032" alt="Screenshot (6)" src="https://github.com/user-attachments/assets/b3610d5f-711a-4d40-9a3a-c2ec103707a8" />
+<br><hr><br><br>
+
+
 
 
